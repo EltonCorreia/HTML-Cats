@@ -1,0 +1,1 @@
+Página da psedo-empresa de tecnologia "Cats Tecnologias" fundada por Anna Luisa em Petrolândia - Contagem (MG) (sim, aquela cidade onde todas as ruas são nomes de derivados do petróleo). Gosto que criei isso em base de qualquer ideia idiota que já tive em cima de "como se cria uma empresa?".
